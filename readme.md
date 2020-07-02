@@ -4,5 +4,5 @@ This is the team from [Prarthana School](http://www.prarthanaschool.in/) that st
 
 On the account of winning, we were given the opportunity from IISc. to speak to the municipalities whichever controlled the lakes and we were featured in the newspaper for the same and raising awareness. 
 
-![](C:\Users\pruth\Downloads\unnamed.png)
+![](https://github.com/imPdhar/IISc-Paper-Presentation-Lake-2014/blob/master/unnamed.png)
 
